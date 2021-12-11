@@ -1,6 +1,1 @@
-https://sub.v2hub.icu/link/FmfqsOVGSJAPlYYL?config=1
-
-
-
-
-https://sub.v2hub.icu/link/FmfqsOVGSJAPlYYL?config=1
+https://sub.12.icu/link/FmfqsOVGSJAPlYYL?config=1
